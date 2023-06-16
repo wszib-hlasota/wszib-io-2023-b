@@ -1,1 +1,2 @@
 Hubert Lasota
+Sebastian Bugajski
